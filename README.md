@@ -3,7 +3,7 @@ Apprenez enfin à comprendre Ines grâce à ces mises à jour
 
 Toi aussi tu veux être dans la private joke ? MET TOI A JOUR MAINTENANT ! 😉
 
-Objectif vous faire comprend le langage d'ines
+Objectif vous faire comprendre le langage d'ines
 
 Avant le patch : привет I são 伊内斯 
 
